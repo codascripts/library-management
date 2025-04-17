@@ -1,5 +1,3 @@
-I sincerely apologize for the delay in acknowledging your email. I received it on March 27 2025, but only saw it today, March 29 2025. Upon reviewing the assignment, I promptly completed it within a few hours, adhering to the specified two-day deadline mentioned in the description. However, I take full responsibility for not checking the email sooner and will ensure better responsiveness in the future.
-
 
 # library_management
 
